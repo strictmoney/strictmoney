@@ -1,7 +1,7 @@
 # <img src="https://i.redd.it/5vte6zpg8nyb1.gif"/>
-Harvey/Fable * He/They * Mysterious. (Like actually. Trust me, Ion tell shit. (Lies, Force me and you'll get an answer) *
+Bill * He/They *Demiboy <3 * Long semi hiatus ?
 # ~~^q^~-
-# WHISP2INT (UNLESS CLOSE) \ Offtab mostly \ DNTUF (When I mean by touch, I mean KISSING.)
+# WHISP2INT (UNLESS CLOSE) \ Offtab mostly \ Int!!
 # <img src="https://media1.tenor.com/m/efmFdfalizsAAAAC/gravity-falls-stanford-pines.gif" alt="a man in a cape is standing in front of a blue light"/>
 INT; People w similar taste. obv. / DNI: Crisp /j (I love you crisp srry) I dont have much DNIs other than weirdos with weird ass fetishes and People who spread misinformation, like you guys suck.
 <img src="https://media1.tenor.com/m/LMlqtpx74ocAAAAd/batman-superman.gif" alt="a robin and a superman standing next to each other"/>
