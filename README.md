@@ -1,5 +1,4 @@
-# <img src=<"https://i.redd.it/5vte6zpg8nyb1.gif" alt="some WOY gifs I made a few months ago :3 lmk if yall want more/what yall  want : r/WanderOverYonder"/>
-/>
+# <img src=<"https://i.redd.it/5vte6zpg8nyb1.gif" alt="/>
 Harvey/Fable * He/They * Mysterious. (Like actually. Trust me, Ion tell shit. (Lies, Force me and you'll get an answer) *
 # ~~^q^~-
 # WHISP2INT (UNLESS CLOSE) \ Offtab mostly \ DNTUF (When I mean by touch, I mean KISSING.)
