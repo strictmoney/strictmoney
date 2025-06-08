@@ -1,4 +1,4 @@
-# <img src=<"https://i.redd.it/5vte6zpg8nyb1.gif" alt="/>
+# <img src="https://i.redd.it/5vte6zpg8nyb1.gif"/>
 Harvey/Fable * He/They * Mysterious. (Like actually. Trust me, Ion tell shit. (Lies, Force me and you'll get an answer) *
 # ~~^q^~-
 # WHISP2INT (UNLESS CLOSE) \ Offtab mostly \ DNTUF (When I mean by touch, I mean KISSING.)
